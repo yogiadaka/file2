@@ -1,1 +1,10 @@
-welcome to git
+wadjfhjfksfhuhfkjfhnkjdsnfjkhdfjdshfjhdfnkjdsnfkdjnfkjnfdfdf
+dfkhsdknflkf
+safoijhf
+
+fsdhjgmjgd
+g
+sdfgdsfds
+f
+sdaf
+ads\flcome to git
